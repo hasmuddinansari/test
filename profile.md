@@ -1,1 +1,1 @@
-"# SPARTANS - <Hasmuddin Ansari>" >
+"# SPARTANS - Hasmuddin Ansari"
